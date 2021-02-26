@@ -10,4 +10,3 @@ Here are some ideas to get you started:
 -  👧I'm energetic and I want to help others.
 -  👍️My friends say I'm very kind.
 -  🎣My favorite activity fishing!
--  
