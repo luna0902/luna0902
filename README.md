@@ -2,8 +2,8 @@
 
 Here are some ideas to get you started:
 
--  🎒저는 대구교대부설초 다녀요.
--  🎨전 그림그리기와 만들기를 잘해요.
+-  🎒I go to Gyodaebutcho Elementary school.
+-  🎨I'm good at drawing, making something.
 -  🐳전 동물, 그 중에 특히 고래가 좋아요.
 -  👩🏻‍⚕제 꿈은 의학 관련 연구원 아님 의사에요. 둘 중에 뭘 고를지 모르겠어요^^
 -  👾Trevor Henderson 작가님 작품에 괌심을 가지게 되었어요!
