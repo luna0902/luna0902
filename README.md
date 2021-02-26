@@ -3,6 +3,7 @@
 Here are some ideas to get you started:
 
 -  🎒I go to Gyodaebutcho Elementary school.
+-   I started learning Python with my friends from My teacher, Taekung Kim 6months ago! 
 -  🎨I'm good at drawing, making something.
 -  🐳I love animals, especially whales!
 -  👩🏻‍⚕My dream is doctor or medical researcher. I can't choose one of them..^^
