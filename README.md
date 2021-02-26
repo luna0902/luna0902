@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 -  👾I've got interested in drawings of 'Trevor Henderson'!
 -  👧I'm energetic and I want to help others.
 -  👍️My friends say I'm very kind.
--  🎣My favorite activity fishing!
+-  🎣My favorite activity is fishing!
