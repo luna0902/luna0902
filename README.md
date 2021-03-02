@@ -6,4 +6,4 @@
 -  🎨 I'm good at drawing and making something.
 -  👾 My dream is to be a __doctor__ or __medical researcher__. I want to be both of them..^^
 -  👧 I'm _energetic_ and I want to _help_ other people.
--  🐳 I love _animals_, especially __[whales]__(https://ko.wikipedia.org/wiki/%EA%B3%A0%EB%9E%98)!(want more infos about whales, click the text 'whale')
+-  🐳 I love _animals_, especially [whales](https://ko.wikipedia.org/wiki/%EA%B3%A0%EB%9E%98)!(want more infos about whales, click the text 'whale')
